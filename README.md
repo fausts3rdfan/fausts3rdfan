@@ -1,9 +1,8 @@
 ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎    ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎ ‎   ‎ ‎‎ ‎<img width="751" height="111" alt="Faust_Signature" src="https://github.com/user-attachments/assets/439d0625-fdca-4351-8f02-e95992a6ddf1" />
 
 ![uyop47](https://github.com/user-attachments/assets/b1dcdebb-5ded-4b5c-b366-8636f61f4702)
-haiii !!! ![otwqnd](https://github.com/user-attachments/assets/701f6abb-58ed-4f72-8dc5-0ae1b39722db)
- ‎  ![left-wing1](https://github.com/user-attachments/assets/c4351f06-99d2-4e64-9264-fcf2d8fb0163) im everlasting, or u can just call me aliyah.. mostly oomfs/friends only call me aliyah though!
-![right-wing1](https://github.com/user-attachments/assets/87969551-9993-4c80-8d76-0f4c35f816be)
+haiii !!!![otwqnd](https://github.com/user-attachments/assets/701f6abb-58ed-4f72-8dc5-0ae1b39722db)
+ ‎  ![left-wing1](https://github.com/user-attachments/assets/c4351f06-99d2-4e64-9264-fcf2d8fb0163) im everlasting, or u can just call me aliyah.. mostly oomfs/friends only call me aliyah though!![right-wing1](https://github.com/user-attachments/assets/87969551-9993-4c80-8d76-0f4c35f816be)
 
 you can most definently cudddle (c+h) with me! im mostly afk most of the time .
 ![61px-Faust_3rd_Anniversary_SD](https://github.com/user-attachments/assets/a66bcf0c-cc93-4d85-8ec7-7c8a2473e86d)
