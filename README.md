@@ -22,4 +22,4 @@ you can most definently cudddle (c+h) with me! im mostly afk most of the time .
  ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎    ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎https://eveerlaasting.straw.page
 
 
-![Heishou_Pack_-_Mao_Branch_Adept_Faust_Idle_Animation](https://github.com/user-attachments/assets/f2dece3d-4af8-460f-a18d-a0078433d38a)   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎mao fau :heart:
+![Heishou_Pack_-_Mao_Branch_Adept_Faust_Idle_Animation](https://github.com/user-attachments/assets/f2dece3d-4af8-460f-a18d-a0078433d38a)   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎mao fau 💚
