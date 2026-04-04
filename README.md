@@ -18,7 +18,7 @@ you can most definently cudddle (c+h) with me! im mostly afk most of the time .
  ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎  ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎ ‎   ‎ ‎‎   ‎   I will reply to crowns though! (maybe)
  
  <img width="1280" height="143" alt="rwal1a" src="https://github.com/user-attachments/assets/56ebaf7d-a352-4ca5-8fc1-2d3e38c22961" />
- ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎ ‎ ‎ ‎ ‎    ‎https://eveerlaasting.straw.page
+ ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎ ‎ ‎ ‎ ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎      ‎https://eveerlaasting.straw.page
   ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎    ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎ ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎    ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎       ‎   ‎   ‎    https://www.tiktok.com/@fausts3rdfan
 
 
