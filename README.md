@@ -28,7 +28,7 @@ https://x.com/ringfauvisst
 
 
    ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎ 
-   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎    ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎    ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎ ‎ ‎   ‎    ‎   ‎    ‎   ‎   ‎  ‎   ‎ ‎ ‎   ‎   ‎ ‎  ‎ https://ca.pinterest.com/freakzter/
+   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎    ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎    ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎ ‎ ‎   ‎    ‎   ‎    ‎   ‎   ‎  ‎   ‎ ‎ ‎   ‎   ‎ ‎     ‎‎ ‎    https://ca.pinterest.com/freakzter/
   ‎   ‎ ‎   ‎ ‎ ‎ ‎   * i dont post on pinterest
 
 
