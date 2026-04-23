@@ -18,8 +18,18 @@ you can most definitely cuddle (c+h) with me! im mostly afk most of the time .
  ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎  ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎   ‎ ‎   ‎ ‎‎   ‎   I will reply to crowns though! (maybe)
  
  <img width="1280" height="143" alt="rwal1a" src="https://github.com/user-attachments/assets/56ebaf7d-a352-4ca5-8fc1-2d3e38c22961" />
- ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎ ‎ ‎ ‎ ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎      ‎https://eveerlaasting.straw.page
-  ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎    ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎ ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎    ‎ ‎   ‎ ‎ ‎   ‎   ‎ ‎   ‎ ‎ ‎    https://www.tiktok.com/@fausts3rdfan
+ ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎ ‎ ‎ ‎ ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎  ‎   ‎ ‎      ‎https://eveerlaasting.straw.page
+  ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎    ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎ ‎   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎
+  
+  
+  ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎    ‎ ‎   ‎  ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎   ‎ ‎       https://www.tiktok.com/@fausts3rdfan
+https://x.com/ringfauvisst
+
+
+
+   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎ 
+   ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎    ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎    ‎   ‎    ‎   ‎   ‎  ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎   ‎ ‎ ‎   ‎    ‎   ‎    ‎   ‎   ‎  ‎   ‎ ‎ ‎   ‎   ‎ ‎  ‎ https://ca.pinterest.com/freakzter/
+  ‎   ‎ ‎   ‎ ‎ ‎ ‎   * i dont post on pinterest
 
 
 ![Heishou_Pack_-_Mao_Branch_Adept_Faust_Idle_Animation](https://github.com/user-attachments/assets/f2dece3d-4af8-460f-a18d-a0078433d38a)   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎mao fau 💚
