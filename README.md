@@ -23,7 +23,7 @@ you can most definitely cuddle (c+h) with me! im mostly afk most of the time .
   
   
   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎    ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎   ‎  ‎   ‎   ‎   ‎ ‎   ‎ ‎ ‎ ‎    ‎ ‎   ‎  ‎   ‎ ‎   ‎ ‎ ‎ ‎   ‎   ‎   ‎   ‎ ‎       https://www.tiktok.com/@fausts3rdfan
-https://x.com/ringfauvisst
+https://x.com/fausts3rdfan
 
 
 
